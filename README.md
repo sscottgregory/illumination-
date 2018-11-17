@@ -1,0 +1,3 @@
+# illumination-
+For those who strive for greatness...
+We must precieve failure as a learning experience and something to grow from. 
